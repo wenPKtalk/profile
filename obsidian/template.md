@@ -2,7 +2,7 @@
 
 > 电话：`13571946597`       邮箱：`wensir_top@163.com`
 
-<img src="https://cdn.jsdelivr.net/gh/wenPKtalk/pictures@master/blog/20240617/01_12/我的证件照2.jpg" alt="avatar">
+<img src="https://cdn.jsdelivr.net/gh/wenPKtalk/pictures@master/blog/20250102/23_21/2851735830140_.pic.jpg" alt="avatar">
 
 ## 基本信息
 
